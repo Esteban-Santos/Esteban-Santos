@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Esteban-Santos
+- 👀 I’m interested in learning more every day
+- 🌱 I’m currently learning to use this application and others
+- 💞️ I’m looking to collaborate on create new ideas or trends in social networks
+- 📫 How to reach me I don't understand the truth
